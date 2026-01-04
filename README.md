@@ -1,4 +1,4 @@
-# Juice=Juice – 盛れ！ミ・アモーレ (LIVE)
+# Juice=Juice – 盛れ！ミ・アモーレ (Concert 2025 Queen of Hearts Special Flush)
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
